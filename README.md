@@ -1,0 +1,2 @@
+# F-qanGoldSignals
+Yaddaşda saxla
